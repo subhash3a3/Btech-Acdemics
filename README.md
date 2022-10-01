@@ -1,1 +1,1 @@
-# Btech-Acdemics
+# Btech-Academics
